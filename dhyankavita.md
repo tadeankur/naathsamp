@@ -1,6 +1,5 @@
-# naathsamp
 
-##Dhyan sadhana
+## Dhyan sadhana
 
 सात मंजिला देह मिली है,
 सात चक्रों से सजा मकान ।
